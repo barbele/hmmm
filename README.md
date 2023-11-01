@@ -1,0 +1,1 @@
+# man nav saprasanas par programmesanu
